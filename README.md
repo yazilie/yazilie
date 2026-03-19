@@ -1,1 +1,3 @@
-yes I made my profile private. *cry about it*
+## Luna (yazilie) $\tiny\color{gray}she/her$
+- Email yazilie@proton.me
+- Timzeone US/Mountain
