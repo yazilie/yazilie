@@ -1,3 +1,3 @@
-## Luna (yazilie) $\tiny\color{gray}she/her$
+## Luna (yazilie)
 - Email yazilie@proton.me
 - Timzeone US/Mountain
