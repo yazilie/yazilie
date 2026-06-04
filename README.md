@@ -1,3 +1,3 @@
 ## Luna (yazilie)
-- Email yazilie@proton.me
+- Email yazilie@yazilie.com
 - Timzeone US/Mountain
