@@ -1,3 +1,4 @@
 ## yazilie
 - Email yazilie@yazilie.com
-- Timzeone US/Mountain
+  - Doing Minecraft mod comissions
+- Timzeone `US/Mountain`
